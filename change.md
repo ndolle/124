@@ -1,0 +1,1 @@
+To help you cut through the noise, we have evolved our newsletter from a standard news aggregator into a strategic executive briefing that synthesizes individual stories into actionable macro-trends, focusing on both the what and the why of AI's impact on the financial sector.
